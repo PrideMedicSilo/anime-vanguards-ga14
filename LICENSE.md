@@ -1,4 +1,4 @@
-
+updated anime vanguards Scripts is the best anime vanguards Script, featuring anti-ban and no clip. Safe and powerful for all your needs.
 
 
 
